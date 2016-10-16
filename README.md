@@ -4,7 +4,7 @@
 
 _**Highschool of Telecommunication Art and Technology**_
 
-Hello my name is Belinda, and I'm a junior at HSTAT. Junior year is going well so far and I hope to do well in every class. 
+>Hello my name is Belinda, and I'm a junior at HSTAT. Junior year is going well so far and I hope to do well in every class. One of my favorite subjects is history. I'm not in any school teams nor in any clubs.    
 
   Period 1: SEP 
  
