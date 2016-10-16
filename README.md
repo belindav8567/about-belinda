@@ -1,8 +1,8 @@
-Belinda V
+# _Belinda V_
 
-belidnav8567@hstat.org
+## belidnav8567@hstat.org
 
-Highschool of Telecommunication Art and Technology 
+_**Highschool of Telecommunication Art and Technology**_
 
 Hello my name is Belinda, and I'm a junior at HSTAT. Junior year is going well so far and I hope to do well in every class. 
 
