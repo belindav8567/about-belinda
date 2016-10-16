@@ -1,6 +1,6 @@
 # _Belinda V_
 
-## belidnav8567@hstat.org
+## belindav8567@hstat.org
 
 _**Highschool of Telecommunication Art and Technology**_
 
